@@ -1,0 +1,2 @@
+# resolusi
+harapan biyan kedepannya
